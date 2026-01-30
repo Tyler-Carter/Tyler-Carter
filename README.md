@@ -38,3 +38,4 @@ Contract or freelance work as a data analyst or AI support contributor, especial
 
 Email: gtc198@gmail.com  
 LinkedIn: https://www.linkedin.com/tyler-carter-info/
+Upwork: https://www.upwork.com/freelancers/~0126163194951f2b92?mp_source=share
